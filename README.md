@@ -6,7 +6,7 @@
 
 💚 Ask me about houseplants and gardening.
 
-📫 Reach me @flox@ecoevo.social
+📫 Reach me: @flox@ecoevo.social
 
 😄 Pronouns: she-elle-அவள்-صُوفیئا
 
