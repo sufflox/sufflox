@@ -6,8 +6,6 @@
 
 💚 Ask me about houseplants and gardening.
 
-📫 Reach me: (@flox@ecoevo.social)
-
 😄 Pronouns: she-elle-அவள்-صُوفیئا
 
 ⚡ Fun fact: "lucky bamboo" is not a bamboo but a dracaena.
